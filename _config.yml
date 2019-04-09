@@ -80,4 +80,4 @@ theme: cactus-light
 deploy:
   type: git
   repo: https://github.com/pittman021/pittman021.github.io
-  branch: gh-pages
+  branch: master
