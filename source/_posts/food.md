@@ -12,15 +12,21 @@ though I'm not sold. here's [why](https://foodscienceinstitute.com/2016/08/13/wh
 2. it's promotes an unhealthy relationship with food
 3. it promotes atkins like meat consumption
 
-However, it does do a few things right. It does prohibit sugar & alcohol. countless people are addicted or used to consuming sugar and refined grains. I'm no different. I tend to 'crave' beers and pizza toward the weekend - both a craving likely for sugars and a habitual trigger that I wouldn't mind removing.
+However, it does do a few things right. 
 
-There's no debate whether these are bad for you. In fact, cutting these out completely is probably a good idea. 
+**It does prohibit sugar & alcohol**
 
-In my circle beer & wine flows with every activity it seems. Taking a month to reset from alcohol - similar to dry january - should be welcomed. Go easy on your friends 'drying up'. their abstinence is hard enough already. 
+sugar is highly addictive. people consume far too much of it (alongside refined grains) refind grains. I tend to 'crave' beers and pizza in stress moments (and bored). There's no debate whether these are bad for you. removing these completely is probably a good idea. 
 
-lastly, the diet promotes inviting challenge into your life. i encourage you to add challenges like these into your life. stop drinking coffee for a few days. no hot showers for a week. run every morning at 6am for a week. it can be whatever. get creative.
+In my circle beer & wine flows with every activity it seems. Taking a month to reset from alcohol - similar to dry january - should be welcomed. Go easy on your friends 'drying up'. their abstinence is hard enough already.
 
-these challenges keep your perspective fresh and challenge your habits and triggers. for example, lately i  "need" something to drink at dinner aside from water. but probably until i was 25 i only ever drank water and didn't think twice of it. only after some months of including wine do i now feel its strange to just drink water. 
+**promotes challenge**
+
+lastly, the diet promotes discipline. i encourage you to add challenges like these into your life. stop drinking coffee for a few days. no hot showers for a week. run every morning at 6am for a week. it can be whatever. get creative. 
+
+testing your willpower feels good and counterintuitively makes you happier.
+
+these challenges refresh your perspective. for example, lately i  "need" something to drink at dinner aside from water. but probably until i was 25 i only ever drank water and didn't think twice about it. only after some months of including wine do i now feel its strange to just drink water.
 
 so try the whole30 or some other variation. just don't expect it to change your life long-term. only lifestyle change can do that. 
 
